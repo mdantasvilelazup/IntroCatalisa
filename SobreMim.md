@@ -8,6 +8,7 @@ Meu nome é matheus, mas todo mundo me chama de dantas. Amo criar coisas (quase 
 
 - eu AMO música, gosto de tocar, ouvir e compor (to aprendendo essa parte ainda)
 - eu AMO fazer jogos, fiz 4 esse semestre e quero fazer mais (pelo menos 8) e melhorar alguns que eu já tenho ano que vem.
+- gosto de criar projetos (to fazendo um app mobile com uns amigos)
 - gosto de estudar filosofia e história
 - gosto de conversar besteira
 - gosto de ler bobajada (mangás e afins)
