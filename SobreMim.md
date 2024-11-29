@@ -3,6 +3,7 @@
 Meu nome é matheus, mas todo mundo me chama de dantas. Amo criar coisas (quase qualquer coisa).
 - [linkedin](https://www.linkedin.com/in/mdantasdev)
 - [github pessoal](https://github.com/dantoso)
+- [meu itch (onde eu publico os jogos) (não tem um bom, ainda)](https://xeddyxeddoso.itch.io)
 
 ## coisas que eu gosto
 
